@@ -5,3 +5,5 @@
 #### the original website is linked bellow 
 
 https://backstagetalks.com/
+
+#### all rights preserved
